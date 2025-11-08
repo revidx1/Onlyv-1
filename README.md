@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [youssef.behlafi001@gmail.com](youssef.behlafi001@gmail.com)
 
-- ⚡ Fun fact **I'm funny**
+- ⚡ Fun fact **I'm hungry :( **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
